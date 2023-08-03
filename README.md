@@ -1,0 +1,3 @@
+- 👋 Eu sou a Ana 
+- 👀 Estudo no ensino medio 
+- 🌱 Gosto muito de estudar filisofia
